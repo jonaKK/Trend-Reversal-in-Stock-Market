@@ -1,0 +1,1 @@
+# Trend-Reversal-in-Stock-Market
